@@ -1,1 +1,2 @@
-# Token-explane
+This Ks token logo is refer to general aung san who is straggle for myanmar democracy. This Ks token is amied for use in new Myanmar country. The project target is to be use this token in widely myanmar country as main currency. This token is created at 1/2/2025 12pm. 
+That's all...
